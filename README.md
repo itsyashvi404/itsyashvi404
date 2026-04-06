@@ -45,8 +45,7 @@ I'm always interested in:
 - 🤝 Collaborating on open-source data projects
 - 📧 Sharing knowledge and learning from others
 
-**Feel free to reach out!** :[📧 Email](mailto:yashvishah715@gmail.com) • [🔗 LinkedIn](https://linkedin.com/in/shah-r-yashvi) • [💻 GitHub](https://github.com/your-username)
- 
+**Feel free to reach out!** :[📧 Email](mailto:yashvishah715@gmail.com) • [🔗 LinkedIn](https://linkedin.com/in/shah-r-yashvi) • [💻 GitHub](https://github.com/itsyashvi404)
 
 ---
 
